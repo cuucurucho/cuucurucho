@@ -1,6 +1,6 @@
 <div align="center">
   
- $\color{#e5ddd9}{\text{Orlando  ‎ ‎‎ ‎  ‎   or   ‎ ‎ ‎‎  ‎ ‎   Org ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎his, theirs ‎ }}$
+ $\color{#e5ddd9}{\text{orlando  ‎ ‎‎ ‎  ‎   or   ‎ ‎ ‎‎  ‎ ‎  org ‎ ‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎his, theirs, any ‎ }}$
 
 <img width="2048" height="123" alt="image" src="https://github.com/user-attachments/assets/3b75e35b-c0fe-4526-937c-6a08471648be" />
 
@@ -8,10 +8,8 @@
  $\color{#e5ddd9}{\text{ANYONE REMOTELY SELF PROCLAIMING IDEOLOGICAL and TABOO STANCES and CONTENT. }}$
  
  $\color{#908b89}{\text{IE. PROSHIP, PROFIC, DARKSHIP, DEAD DOVE, ETC.}}$
- 
-$\color{#e5ddd9}{\text{WSS, AND OR OTHER CONCERNING CONTENT CREATORS}}$
 
- $\color{#908b89}{\text{everything here might be updated or elaborated on but i dont have time for that at this moment. }}$
+ $\color{#908b89}{\text{everything here might be updated or elaborated on but i dont have time for that rn }}$
 _________________________________________________
 
 <p align="center">
