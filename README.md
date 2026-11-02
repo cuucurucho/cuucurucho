@@ -9,10 +9,10 @@
 
 
 
- $\color{#e00707}{\text{DO NOT INTERACT  ‎ ‎‎ ‎  ‎    ‎ }}$
- $\color{#e5ddd9}{\text{ideological censorship and taboo bullshit like }}$
+ $\color{#e00707}{\text{dni softies  ‎ ‎‎ ‎  ‎    ‎ }}$
+ $\color{#e5ddd9}{\text{i don't have time for that shit }}$
  
- $\color{#940000}{\text{proship, profic, dead dove, comship, stridercest, whatever it is i don't fw that shit }}$
+ $\color{#940000}{\text{i like my husband he's pretty cool and gay as fuck but cool }}$
 
    $\color{#e5ddd9}{\text{everything here might be updated or elaborated on but i dont have time for that rn but feel free to anticipate  }}$
 
