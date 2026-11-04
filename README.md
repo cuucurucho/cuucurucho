@@ -9,7 +9,7 @@
 
 
 
- $\color{#e00707}{\text{dni softies  ‎ ‎‎ ‎  ‎    ‎ }}$
+ $\color{#e00707}{\text{no softies  ‎ ‎‎ ‎  ‎    ‎ }}$
  $\color{#e5ddd9}{\text{i don't have time for that shit }}$
  
    $\color{#e5ddd9}{\text{everything here might be updated or elaborated on but i dont have time for that rn but feel free to anticipate  }}$
